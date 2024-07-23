@@ -1,1 +1,1 @@
-Kindly flag this repo 
+Kindly give star and follow.
